@@ -1,5 +1,5 @@
-### Hey there, I'm Jessica 👋
-### I make things work one line of code at a time 👩‍💻
+### Hey there!👋
+### I'm Jessica, and I make things work one line of code at a time 👩‍💻
 
 <!--
 **jessica-guan/jessica-guan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
