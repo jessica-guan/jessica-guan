@@ -6,4 +6,4 @@
 - 🍎 I’m actively seeking internship opportunities for summer 2024
 - 💬 Feel free to ask me anything about my work or just to chat!
 - 📫 How to reach me: jessicaaguann@gmail.com or jessicaguan on Discord
-- 😋 I love all kinds of spicy food and matcha-flavored drinks!
+- 😋 A fun fact about me is that I love all kinds of spicy food and matcha-flavored drinks!
