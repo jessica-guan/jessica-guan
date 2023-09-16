@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on professional endeavors in technology, innovation, advocacy, and entrepreneurship
 - 🍎 I’m actively seeking internship opportunities for summer 2024
 - 💬 Feel free to ask me anything about my work or just to chat!
-- 📫 How to reach me: jessicaaguann@gmail.com or jessicaguan on Discord
+- 📫 You can reach me at jessicaaguann@gmail.com or jessicaguan on Discord
 - 😋 A fun fact about me is that I love all kinds of spicy food and matcha-flavored drinks!
