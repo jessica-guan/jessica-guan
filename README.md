@@ -4,4 +4,4 @@
 - 🐻 I’m currently working as a web developer for Bruin Market, a startup founded by a group of UCLA students
 - 👯 I’m looking to collaborate on professional endeavors in technology, innovation, advocacy, and entrepreneurship
 - 💬 Feel free to ask me anything about my work or just to chat!
-- 📫 You can reach me at jessicag202@ucla.edu or jessicaguan on Discord
+- 📫 You can reach me at jessicag2023@ucla.edu or jessicaguan on Discord
